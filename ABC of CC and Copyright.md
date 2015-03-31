@@ -7,5 +7,5 @@
 - CC ELS: 1 month (?), and 3 weeks for translation.
 
 *Last update:* 
-- Was Meilyn contacted? :| (CR)
+- Was Meilyn contacted? :| (CR) YES.
 - Evelyn sent form on Jan 29. Was the wire sent? (CR)
