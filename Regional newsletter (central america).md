@@ -8,4 +8,5 @@
 - Design (Jan 19 - Feb 15)
 - Launch (March 2)
 
-*Last update:* Wired transfered (30.01.2015)
+*Last update:*
+- CC ELS will send a new timeframe. 
