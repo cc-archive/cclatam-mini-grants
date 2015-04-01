@@ -7,4 +7,6 @@
 - March (testing)
 - April (capacity building)
 
-*Last update:* Lupa sent out the detailed budget to Scott.
+*Last update:* 
+- CC PY did received the wire transfer. 
+- CC PY will send a new timeframe.
