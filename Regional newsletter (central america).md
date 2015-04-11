@@ -3,10 +3,11 @@
 *Responsable:* CC El Salvador ([Claudia Cristiani](fundacion@accesarte.org) and [Evelyn Del Pinal](eve275pinal@gmail.com))
 
 *Timeframe:*
-- Editorial board (Jan 5-11)
-- Structure (Jan 12-18)
-- Design (Jan 19 - Feb 15)
-- Launch (March 2)
+- Editorial board (Apr 1-10)
+- Structure (Apr 11-17)
+- Design (Apr 18 - May 2)
+- Edition (Apr 9 - 29)
+- Launch (Jun 12)
 
 *Last update:*
-- CC ELS will send a new timeframe. 
+- We have new timeframe (Apr 11) 
