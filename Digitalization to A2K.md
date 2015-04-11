@@ -8,5 +8,4 @@
 - June (capacity building)
 
 *Last update:* 
-- CC PY did received the wire transfer. 
 - New timeframe! (Apr 11)
