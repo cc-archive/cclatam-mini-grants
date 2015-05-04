@@ -7,4 +7,5 @@
 - CC ELS: 1 month (?), and 3 weeks for translation.
 
 *Last update:* 
-- Evelyn + Claudia will coordinate with CC-CR. 
+- <del>Evelyn + Claudia will coordinate with CC-CR. </del>
+- After spoke with CC-CR and CC-ELS, they will send out a proposal of join work. (04.05.2015)
